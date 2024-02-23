@@ -1,4 +1,4 @@
-# HetaEkb.github.io
+# Team9.github.io
 Team 9 
 
 About 
